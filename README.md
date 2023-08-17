@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ZerpStvn
-- 👀 I’m interested in your life, so how are you? are you doing fine? if you need a collaboration to your project I'm just be here 
-- 🌱 I’m currently learning a programming language wait!.. what is it could again? OHHH YEAHHH! its could how to cope with depression
-- 💞️ I’m looking to collaborate on probably anything I can even collaborate with your social life, I mean I'm the only one who will               understand your struggle hehehehe.
+- 👋 Hi, I’m @ZerpStvn (Steve)
+- 👀 I genuinely care about your journey. How's everything going for you? If you ever need a hand or collaboration for any project, just know I'm here for you." 🤝❤️
+- 🌱 I'm currently diving into a new 'programming language'... Wait, what's it called again? Oh, that's right! It's called 'Coping with Depression'. A journey of self-discovery and resilience!" 💪❤️
+- 💞️ "I'm open to collaborating on just about anything! I can even chime in on your social life. After all, I might be the only one who truly gets your struggles. Hehehe!" 😄🤝
 - 📫 How to reach me? just contact me thru my email zerpstan@gmail.com
 
 <!---
