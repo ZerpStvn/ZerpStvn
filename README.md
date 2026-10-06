@@ -1,6 +1,6 @@
 # 👋 Hi, I'm @ZerpStvn
 
-> **Steve | Full-Stack Developer | Professional Overthinker™**
+> **Steve | Full-Stack Developer | Overthinker™**
 
 ---
 
